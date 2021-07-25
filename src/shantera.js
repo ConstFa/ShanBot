@@ -37,9 +37,9 @@ boliviano
 enano
 
 
-_*Ojito escribe tal y como esta en el mensaje*_
+_*Ojo escribe tal y como está en el mensaje(incluyendo minúsculas)*_
 
-ву ѕнαη∂υу`
+ву ༺ʄʀօʍɨ࿐⃝➳♡⃤`
 
 }
 
